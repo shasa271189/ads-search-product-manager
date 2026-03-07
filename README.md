@@ -1,1 +1,0 @@
-# ads-search-product-manager
